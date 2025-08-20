@@ -35,3 +35,6 @@ Tenho interesse também em **compliance, governança corporativa e setores econ�
 ✍️ Sempre em evolução, unindo tecnologia, conhecimento e criatividade!
 
 </div>
+
+
+  
